@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **midrees0045@gmail.com**
 
-- 📄 Know about my experiences [https://pern-my.sharepoint.com/:w:/g/personal/m_idrees_comsats_edu_pk/EQ9I3CPV2ehClqL92dfZGMYBdnS3-Hzm1OUXotFhVSCdHw?e=BYwTCo](https://pern-my.sharepoint.com/:w:/g/personal/m_idrees_comsats_edu_pk/EQ9I3CPV2ehClqL92dfZGMYBdnS3-Hzm1OUXotFhVSCdHw?e=BYwTCo)
+- 📄 Know about my experiences [https://pern-my.sharepoint.com/:w:/g/personal/m_idrees_comsats_edu_pk/Eem-IRoxXlNMi_KzZdc0dlcBcANq9gwJP-JYe5xQQHPvQQ?e=Au5a1L](https://pern-my.sharepoint.com/:w:/g/personal/m_idrees_comsats_edu_pk/Eem-IRoxXlNMi_KzZdc0dlcBcANq9gwJP-JYe5xQQHPvQQ?e=Au5a1L)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
